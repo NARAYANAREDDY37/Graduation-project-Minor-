@@ -1,0 +1,2 @@
+# Graduation-project-Minor-
+SINGLE PHASE HYBRID POWER GENERATION
